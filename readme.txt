@@ -1,0 +1,1 @@
+bot vivodit random chislo, privetstvie, yest knopki
